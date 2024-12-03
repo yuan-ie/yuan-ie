@@ -1,4 +1,4 @@
-### ﹥*:ꔫ:*+ﾟ Yuan's Profile +*:ꔫ:*﹤
+### <p align="center"> ﹥*:ꔫ:*+ﾟ Yuan's Profile +*:ꔫ:*﹤</p>
 
 Hi! My name is YUAN (pronounced as YUH-N). ❥•°❀°•༢
 
