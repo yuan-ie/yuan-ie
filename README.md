@@ -4,9 +4,12 @@ Hi! My name is YUAN (pronounced as YUH-N). ❥•°❀°•༢
 
 I am majoring in Electrical and Computer Engineering at Temple University.<br>
 Most of the repositories below are projects I've done in college or ...<br>
-for fun! ٩(ˊᗜˋ*)و ♡
+for fun! ٩(ˊᗜˋ*)و ♡ <br>
 
-Currently working on `Machine Learning Applications in Digital Pathology`.<br>
+More about me below!<br>
+https://yuan-ie.github.io/yuans-profile/
+
+Currently working on `yuans-discord-bots`.<br>
 (੭｡╹▿╹｡)੭
 
  ∧_∧            ♡<br>
