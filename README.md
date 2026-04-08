@@ -2,7 +2,7 @@
 
 Hi! My name is YUAN (pronounced as YUH-N). ❥•°❀°•༢
 
-I am majoring in Electrical and Computer Engineering at Temple University.<br>
+I graduated with a B.S. in Electrical and Computer Engineering at Temple University.<br>
 Most of the repositories below are projects I've done in college or ...<br>
 for fun! ٩(ˊᗜˋ*)و ♡ <br>
 
